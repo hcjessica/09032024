@@ -1,0 +1,1 @@
+Contenido de clase práctico
